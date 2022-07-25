@@ -24,7 +24,5 @@
                       
                       Telegram  @Monty00077
 
-⚡ Fun fact: I have a youtube chanel which you can check 
-              
-              [IT FIRM BD](https://www.youtube.com/c/ITFirmBD1971)
+⚡YT Chanel [IT FIRM BD](https://www.youtube.com/c/ITFirmBD1971)
 
