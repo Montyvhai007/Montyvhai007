@@ -4,9 +4,9 @@
  
 🍒 I’m currently learning C & thinking to continue with C++ 🍒
 
-🍔 I have some fundamental knowledge about [JAVA] [JAVASCRIPT] [CSS] [HTML] [KOTLIN] 🍔
+🍔 I have some fundamental knowledge about 🥓JAVA🥓JAVASCRIPT🥓CSS🥓HTML🥓KOTLIN 🍔
 
-🍔 I am a Logo Designer heres my [portfolio](https://dribbble.com/Assadkamal007)
+🍔 I am a Logo Designer heres my [PORTFOLIO](https://dribbble.com/Assadkamal007)
        
        🍔 & I am an Adobe Illustrator, Adobe Photoshop user 🍔
        
@@ -26,5 +26,5 @@
 
 ⚡ Fun fact: I have a youtube chanel which you can check 
               
-              Herer's the link : https://www.youtube.com/c/ITFirmBD1971
+              [IT FIRM BD](https://www.youtube.com/c/ITFirmBD1971)
 
