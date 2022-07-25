@@ -4,7 +4,7 @@
  
 🍒 I’m currently learning C & thinking to continue with C++ 🍒
 
-🍔 I have some fundamental knowledge about JAVA JAVASCRIPT CSS HTML KOTLIN 🍔
+🍔 I have some fundamental knowledge about [JAVA] [JAVASCRIPT] [CSS] [HTML] [KOTLIN] 🍔
 
 🍔 I am a Logo Designer heres my portfolio  https://dribbble.com/Assadkamal007
        
