@@ -17,8 +17,12 @@
 🤔 I’m looking for help to grow my skills.
 
 📫 reach me:  Email   mostafakamalanna88@gmail.com
+                      
                       Phone  +8801537468166
+                      
                       Telegram  @Monty00077
+
 ⚡ Fun fact: I have a youtube chanel which you can check 
+              
               Herer's the link : https://www.youtube.com/c/ITFirmBD1971
 
