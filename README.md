@@ -6,15 +6,13 @@
 
 🍔 I have some fundamental knowledge about 🥓JAVA🥓JAVASCRIPT🥓CSS🥓HTML🥓KOTLIN 🍔
 
-🍔 I am a Logo Designer heres my [PORTFOLIO](https://dribbble.com/Assadkamal007)
+🍔 I am a Graphics Designer heres my [PORTFOLIO](https://dribbble.com/Assadkamal007)
        
-       🍔 & I am an Adobe Illustrator, Adobe Photoshop user 🍔
+       🍔 Adobe Illustrator & Adobe Photoshop user (Advance Level) 🍔
        
        🍔 with the knowledge of Filmora, Adobe After Effect, Blender 3D, Figma, AdobexD 🍔
 
 👯 I’m looking to collaborate on any projects as i am learning code from beginner level.
-
-🤔 I’m looking for help to grow my skills.
 
  📫 reach me:  
                      
@@ -24,5 +22,5 @@
                       
                       Telegram  @Monty00077
 
-⚡YT Chanel [IT FIRM BD](https://www.youtube.com/c/ITFirmBD1971)
+⚡Here's My YT Chanel [IT FIRM BD](https://www.youtube.com/c/ITFirmBD1971)
 
