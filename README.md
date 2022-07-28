@@ -6,7 +6,7 @@
 
 🍔 I have some fundamental knowledge about 🥓JAVA🥓JAVASCRIPT🥓CSS🥓HTML🥓KOTLIN 🍔
 
-⚡Here's My YT Chanel [IT FIRM BD](https://www.youtube.com/c/ITFirmBD1971)
+⚡ Here's My YT Chanel [IT FIRM BD](https://www.youtube.com/c/ITFirmBD1971)
 
 🍔 I am a Graphics Designer heres my [PORTFOLIO](https://dribbble.com/Assadkamal007)
        
