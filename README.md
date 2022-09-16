@@ -2,9 +2,9 @@
 
  🍷 I’m currently doing my B.S.C in CSE From Premier University(spring 2022).
  
-🍒 I’m currently learning Cyber Security 🍒
+🍒 Learning Cyber Security 🍒
 
-👕  Owner of [MAZE MART](https://www.facebook.com/mazemart360)
+👕 Owner of [MAZE MART](https://www.facebook.com/mazemart360)
 
 🍔 I have some fundamental knowledge about 🥓JAVA🥓JAVASCRIPT🥓CSS🥓HTML🥓KOTLIN 🍔
 
