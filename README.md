@@ -10,13 +10,11 @@
 
 ⚡ Here's My YT Chanel [IT FIRM BD](https://www.youtube.com/c/ITFirmBD1971)
 
-🍔 I am a Graphics Designer heres my [PORTFOLIO](https://dribbble.com/Assadkamal007)
+🍔 here some of my design [PORTFOLIO](https://dribbble.com/Assadkamal007)
        
        🍔 Adobe Illustrator & Adobe Photoshop user (Advance Level) 🍔
        
        🍔 with the knowledge of Filmora, Adobe After Effect, Blender 3D, Figma, AdobexD 🍔
-
-👯 I’m looking to collaborate on any projects as i am learning code from beginner level.
 
  📫 reach me:  
                      
