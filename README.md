@@ -6,8 +6,6 @@
 
 👕 Owner of [MAZE MART](https://www.facebook.com/mazemart360)
 
-🍔 I have some fundamental knowledge about 🥓JAVA🥓JAVASCRIPT🥓CSS🥓HTML🥓KOTLIN 🍔
-
 ⚡ Here's My YT Chanel [IT FIRM BD](https://www.youtube.com/c/ITFirmBD1971)
 
 🍔 here some of my design [PORTFOLIO](https://dribbble.com/Assadkamal007)
