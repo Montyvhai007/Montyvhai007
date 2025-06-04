@@ -1,6 +1,6 @@
 # Human can't be judged by a simple portfolio ✌
 
- 🍷 I’m currently doing my B.S.C in CSE From Premier University(spring 2022).
+ 🍷 I’m currently doing my B.S.C in CSE From Premier University.
  
 🍒 Learning Cyber Security 🍒
 
