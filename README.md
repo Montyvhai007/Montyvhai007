@@ -1,8 +1,4 @@
-# Human can't be judged by a simple portfolio ✌
-
- 🍷 I’m currently doing my B.S.C in CSE From Premier University.
- 
-🍒 Learning Cyber Security 🍒
+#Hi, I’m currently doing my B.S.C in CSE From Premier University. Learning Cyber Security 🍒
 
 👕 Owner of [MAZE MART](https://www.facebook.com/mazemart360)
 
