@@ -1,4 +1,4 @@
-<h2>Hi, I’m currently doing my B.S.C in CSE From Premier University. Learning Cyber Security 🍒</h2>h2>
+<h2>Hi, I’m currently doing my B.S.C in CSE From Premier University. Learning Cyber Security </h2>
 
 👕 Owner of [MAZE MART](https://www.facebook.com/mazemart360)
 
