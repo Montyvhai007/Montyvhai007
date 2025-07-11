@@ -4,18 +4,12 @@
 
 ⚡ Here's My YT Chanel [IT FIRM BD](https://www.youtube.com/c/ITFirmBD1971)
 
-🍔 here some of my design [PORTFOLIO](https://dribbble.com/Assadkamal007)
+In past i have done some design also here some of my design [PORTFOLIO](https://dribbble.com/Assadkamal007)
        
-       🍔 Adobe Illustrator & Adobe Photoshop user (Advance Level) 🍔
+       🍔 Adobe Illustrator (Advance Level) 🍔
        
-       🍔 with the knowledge of Filmora, Adobe After Effect, Blender 3D, Figma, AdobexD 🍔
+       🍔 with the knowledge of  Adobe Photoshop, Filmora, Adobe After Effect, Blender 3D, Figma, AdobexD 🍔
 
  📫 reach me:  
                      
                       Email   mostafakamalanna88@gmail.com
-                    
-                      Phone  +8801537468166
-                      
-                      Telegram  @Monty00077
-
-
