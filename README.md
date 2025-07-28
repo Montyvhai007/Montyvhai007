@@ -17,5 +17,6 @@ CTFS -
 
 [![CTFtime](https://img.shields.io/badge/BDSEC%20CTF%202025-Position%20165-blue)]()
 
-[![CTFtime](https://img.shields.io/badge/HACKINFINITYBATTLE%20%20%20TRY_HACK_ME-Position%20365-blue)]()
+[![CTFtime](https://img.shields.io/badge/HACKINFINITYBATTLE   TRY_HACK_ME-Position%20365-blue)]()
+
 
