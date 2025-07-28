@@ -18,5 +18,5 @@ CTFS -
 [![CTFtime](https://img.shields.io/badge/BDSEC%20CTF%202025-Position%20165-blue)]()
 
 [![CTFtime](https://img.shields.io/badge/HACKINFINITYBATTLE TRY_HACK_ME-Position%20365-blue)]()
-
+[![CTFtime](https://img.shields.io/badge/Cyber Apocalypse CTF 2025: Tales from Eldoria-Position%20365-blue)]()
 
